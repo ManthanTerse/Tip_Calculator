@@ -24,4 +24,10 @@ A simple and intuitive **Tip Calculator** built to help users quickly calculate 
 
 ![Screenshot 2025-06-19 174825](https://github.com/user-attachments/assets/eb16ba8c-62a1-4f62-bb93-014eefa70280)
 
+🙇‍♂️ Connect With Me :-
 
+🔗 LinkedIn :- https://www.linkedin.com/in/manthanterse/?lipi=urn%3Ali%3Apage%3Ad_flagship3_leia_creator_analytics_content%3BXsSEPTtSR4GV83uzFcsbbg%3D%3D
+
+or
+
+Gmail : tersemanthan2006@gmail.com
